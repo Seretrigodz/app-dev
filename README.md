@@ -1,4 +1,4 @@
-<img src="https://github.com/Seretrigodz/app-dev/assets/169608532/de1e6aa3-8a3f-418c-a255-376d12b81cfa" width="200" height="200">
+<img src="https://github.com/Seretrigodz/app-dev/assets/169608532/952ad6f3-c0ea-4911-a42a-c618de2451cb" width="200" height="200">
 
 # AYEKEN B. SEREDRICA
 
