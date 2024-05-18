@@ -38,8 +38,8 @@ SEPTEMBER 2022
 
 **COLLEGE UNDERGRADUATE**, STI COMPUTER COLLEGE (multiple campuses)
 
-- STI Fairview Dean's Lister (1<sup>st</sup> Year) - GWA: 1.42
-- STI San Jose Del Monte Dean's Lister (current) - GWA: 1.4
+- STI Fairview President's Lister (1<sup>st</sup> Year) - GWA: 1.42
+- STI San Jose Del Monte President's Lister (current) - GWA: 1.4
 
 ## SKILLS
 
